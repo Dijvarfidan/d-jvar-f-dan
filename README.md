@@ -1,2 +1,0 @@
-# d-jvar-f-dan
-.
